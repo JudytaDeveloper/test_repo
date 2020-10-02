@@ -1,0 +1,1 @@
+zaczynajac od nowa
